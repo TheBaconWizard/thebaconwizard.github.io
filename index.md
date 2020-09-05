@@ -15,16 +15,12 @@ cash app
 After that (Jordan’s)
 
 
-Jordan 5 Bel Air GS
-
-4.5y x2
-
-6y x85
-
-6.5y x84
-
-7y x9
-total: 180 pairs
+Jordan 5 Bel Air GS  
+4.5y x2  
+6y x85  
+6.5y x84  
+7y x9  
+total: 180 pairs  
 
 jordan 1 fearless zoom
 BV0006 900

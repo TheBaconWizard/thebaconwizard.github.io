@@ -8,7 +8,9 @@ Email: main.line.soles@gmail.com
 
 Welcome to the Main Line Soles bulk selling page. here, you will be able to view all available inventory and shop in bulk!  
 -
-(payment methods)  
+Accepted Payment Methods
+
+
 Zelle  
 Apple pay  
 cash app  

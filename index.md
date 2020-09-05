@@ -1,15 +1,9 @@
-**Main Line Soles Bulk**  
--  
-
 Contact information
 -
 Instagram DM:  @main_line_soles  
 Text: 610-766-7858  
 Email: main.line.soles@gmail.com  
 
-
-Welcome to the Main Line Soles bulk selling page. Here, you will be able to view all available inventory in bulk!  
--  
 
 Accepted Payment Methods
 -

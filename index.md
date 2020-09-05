@@ -14,6 +14,7 @@ Accepted Payment Methods
 Zelle  
 Apple pay  
 cash app  
+
 -  
 
 

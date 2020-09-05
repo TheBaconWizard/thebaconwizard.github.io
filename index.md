@@ -21,7 +21,7 @@ cash app
 ALL PRICES ARE NEGOTIABLE  
 -  
 
-Items For Sale
+**Items For Sale**
 -  
 
 Jordans

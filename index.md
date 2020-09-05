@@ -24,7 +24,6 @@ Jordan 5 Bel Air GS
 6.5y x84
 
 7y x9
-
 total: 180 pairs
 
 jordan 1 fearless zoom

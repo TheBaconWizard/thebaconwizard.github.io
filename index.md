@@ -12,6 +12,7 @@ Welcome to the Main Line Soles bulk selling page. here, you will be able to view
 -
 Accepted Payment Methods
 -  
+
 Zelle  
 Apple pay  
 cash app  

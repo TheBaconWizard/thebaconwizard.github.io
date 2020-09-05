@@ -11,7 +11,7 @@ Email: main.line.soles@gmail.com
 Welcome to the Main Line Soles bulk selling page. here, you will be able to view all available inventory and shop in bulk!  
 -
 Accepted Payment Methods
--  
+-
 Zelle  
 Apple pay  
 cash app  
@@ -19,6 +19,8 @@ cash app
 Items For Sale
 -  
 
+Jordans
+-  
 
 Jordan 5 Bel Air GS  
 4.5y x2  

@@ -1,37 +1,101 @@
-## Welcome to GitHub Pages
+Main Line Soles Bulk
+-
+Contact info
+Instagram: @main_line_soles
+Phone: 610-766-7858
+Email: main.line.soles@gmail.com
+First page (welcome)
 
-You can use the [editor on GitHub](https://github.com/TheBaconWizard/jack/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Welcome to the Main Line Soles bulk selling page. here, you will be able to view all available inventory and shop in bulk!
+after that: (payment methods)
+Zelle
+Apple pay
+cash app
+-
+After that (Jordan’s)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
+Jordan 5 Bel Air GS
+4.5y x2
+6y x85
+6.5y x84
+7y x9
+total: 180 pairs
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+jordan 1 fearless zoom
+BV0006 900
+11 x2
+12 x1
+14 x3
 
-```markdown
-Syntax highlighted code block
+Jordan 5 fire red
+9 x1
+10 x1
 
-# Header 1
-## Header 2
-### Header 3
+Jordan 12 University gold GS
+4y x3
+4.5y x11
+5y x1
+6y x161
+6.5y x166
+7y x1
+total: 343 pairs
 
-- Bulleted
-- List
+Jordan 12 university gold
+7.5 x1
+8 x3
+8.5 x2
+9 x2
+9.5 x2
+10 x3
+11 x3
+11.5 x1
+13 x1
+total: 18 pairs
 
-1. Numbered
-2. List
+Jordan 1 Royal Low
+10 x5
+10.5 x5
+11 x1
+total: 11 pairs 
 
-**Bold** and _Italic_ and `Code` text
+Jordan 3 animal instinct
+8 x1
+9.5 x1
+10 x2
+10.5 x3
+11 x3
+total: 10 pairs
 
-[Link](url) and ![Image](src)
-```
+Jordan 11 concord bred GS
+5y x2
+5.5y x1
+total: 3 pairs
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+Jordan 5 top 3 GS
+7y x2
 
-### Jekyll Themes
+Jordan 1 mid GS pinksicle 
+555112-002
+4.5y x1
+5y x3
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/TheBaconWizard/jack/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Jordan 1 Low USA
+CV9844 400
+5y x1
+5.5y x1
+6.5y x1
+7y x2
+total: 5 pairs
 
-### Support or Contact
+Jordan 1 Mid white / laser orange
+554724-131
+9 x2
+9.5 x1
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Jordan 1 Mid bred
+10 x1
+-
+after that (off white)
+after that (adidas)
+after that (nike

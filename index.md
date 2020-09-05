@@ -4,16 +4,15 @@ Contact info
 Instagram: @main_line_soles  
 Phone: 610-766-7858  
 Email: main.line.soles@gmail.com  
-First page (welcome)  
 
 
 Welcome to the Main Line Soles bulk selling page. here, you will be able to view all available inventory and shop in bulk!  
-after that: (payment methods)  
+-
+(payment methods)  
 Zelle  
 Apple pay  
 cash app  
 -  
-After that (Jordan’s)  
 
 
 Jordan 5 Bel Air GS  

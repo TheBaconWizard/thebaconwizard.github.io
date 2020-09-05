@@ -8,7 +8,7 @@ Text: 610-766-7858
 Email: main.line.soles@gmail.com  
 
 
-Welcome to the Main Line Soles bulk selling page. Here, you will be able to view all available inventory and shop in bulk!  
+Welcome to the Main Line Soles bulk selling page. Here, you will be able to view all available inventory in bulk!  
 -  
 
 Accepted Payment Methods

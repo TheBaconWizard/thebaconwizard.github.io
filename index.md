@@ -115,6 +115,10 @@ Jordan 1 Mid bred
 10 x1  
 
 
+HI LUKE
+
+HI
+
 after that (off white)  
 after that (adidas)  
 after that (nike  
